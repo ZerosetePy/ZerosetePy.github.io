@@ -82,8 +82,8 @@ I am passionate about:
 
 ### 🧪 Research & Publications
 
-- 📄 *Urban Planning, Security and Human Rights: CPTED Applications in Brasília*
-- 📄 *Strategic Alignment and Data Culture in Public Security*
+- 📄 *Ongoing*
+- 📄 *Ongoing*
 
 ---
 
